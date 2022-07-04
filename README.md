@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Elkman1
+- 👀 I’m interested in small things in life
+- 🌱 I’m currently learning new language 
+- 📫 How to reach me. kainulainenjoe@gmail.com
